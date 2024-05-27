@@ -1,0 +1,4 @@
+- 👋 👋 Hi, I’m @LEWISpatrick
+- 🖥️ 👀 I’m interested in Backend development 
+- 🌱 I’m currently learning Backend development 📈
+- 😲 Am on my way to get the bag 💰🏃
